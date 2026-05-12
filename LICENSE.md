@@ -1,4 +1,4 @@
-# 
+# automatic blur sniper bot | flip-strategies + real-time-monitoring offers the most advanced blur sniper bot, with flip-strategies and real-time-monitoring. Ideal for professional
 
 
 
